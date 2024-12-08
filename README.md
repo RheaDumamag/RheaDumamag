@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @RheaDumamag
+- 👋 Hi, I’m @Rhea Mae Dumamag
 - 👀 I’m interested in CSS and HTML
 - 🌱 I’m currently learning CSS and HTML
 - 💞️ I’m looking to collaborate on learning new skills
